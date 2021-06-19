@@ -1,4 +1,4 @@
-## :heart: My favorite things to do! 
+## ❤️ My favorite things to do! ❤️
 * Sleep 🛌
 * Eat 🥘
 * Watch Anime 🎥
