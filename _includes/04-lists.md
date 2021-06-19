@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+## :heart: My favorite things to do! 
+* Sleep 🛌
+* Eat 🥘
+* Watch Anime 🎥
+* Play with Makeup 💄
+* Take Instagram pics 🧚
